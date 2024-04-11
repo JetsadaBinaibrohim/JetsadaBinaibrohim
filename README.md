@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @JetsadaBinaibrohim
+- 👀 I’m interested >>> Music,Code,Horror game,Spanish
+- 🌱 I’m currently learning >>> Sripatum University
+- 💞️ I’m looking to collaborate on >>> Not now But I'm interested in horror game systems.
+- 📫 How to reach me >>> jetsada.binaibrohim@gmail.com
+- 😄 Pronouns: >>> Jilly Ginn
+- ⚡ Fun fact: >>> I was able to write a program but then realized that the whole program was bugging me.
